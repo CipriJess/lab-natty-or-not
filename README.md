@@ -15,3 +15,5 @@ O e-book apresenta um conteúdo envolvente, demonstrando como as IAs Genativas p
 
 ## 💭 Reflexão (Opcional)
 Criar esse e-book foi uma experiencia imersiva nas tarefas domésticas que podem nos ajudar a cuidar não só do nosso espaço particular quanto também ao meio ambiente que estamos inseridos.
+
+https://mail.google.com/mail/u/0?ui=2&ik=37ca4adf21&attid=0.1&permmsgid=msg-a:r5310078130303149914&th=194affe03b689ec2&view=att&disp=inline&realattid=194aff8731d54e4e0851&zw
